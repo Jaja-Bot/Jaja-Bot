@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Jaja-Bot
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning C++ & Python
+- 📫 How to reach me : don't 
+- 😄 Pronouns: (who cares) 
+- ⚡ Fun fact: no
